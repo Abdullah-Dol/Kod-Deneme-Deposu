@@ -40,42 +40,4 @@ You can find and get in touch with me on below accounts!
 
 [![Twitter Badge](https://img.shields.io/badge/abdullahdol-follow%20on%20twitter-blue?style=for-the-badge&logo=twitter)](https://twitter.com/abdullah_dol4/)
 
-..
-..
 .
-..
-..
-..
-...
-...
-....
-....
-...
-..
-.jhhhhhh
-.öj
-..
-..
-.j
-.
-.
-..
-.
-..
-..
-..
-..
-..
-..
-...
-..
-.
-..
-.j
-.
-.h
-....
-..
-.
-..ü
-..
